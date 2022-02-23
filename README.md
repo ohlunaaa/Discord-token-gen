@@ -7,3 +7,4 @@ Version 1.0
 still working 23.02.22
 
 if you need and help feel free to dm me a404#8596
+dc: https://discord.gg/7bcB6x443n
